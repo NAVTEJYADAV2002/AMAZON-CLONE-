@@ -13,4 +13,15 @@ How to use
 
  Final Demo
 ![image](https://github.com/NAVTEJYADAV2002/AMAZON_CLONE/assets/84469881/063cac63-bcf5-4acb-b653-109e4b4fa2af)
+![image](https://github.com/NAVTEJYADAV2002/AMAZON_CLONE/assets/84469881/5e095465-bc51-4d8c-a764-ff34f16b5568)
+![image](https://github.com/NAVTEJYADAV2002/AMAZON_CLONE/assets/84469881/de9bcba1-fd94-4a6d-a715-b939d8963662)
+![image](https://github.com/NAVTEJYADAV2002/AMAZON_CLONE/assets/84469881/ebc5bc85-613b-4f20-95b0-46298037e51e)
+![image](https://github.com/NAVTEJYADAV2002/AMAZON_CLONE/assets/84469881/02002e32-01dc-486d-be46-272ba2888ede)
+![image](https://github.com/NAVTEJYADAV2002/AMAZON_CLONE/assets/84469881/4ce3dcb7-453e-415c-94f5-a492d732346e)
+![image](https://github.com/NAVTEJYADAV2002/AMAZON_CLONE/assets/84469881/ae364dad-5ab4-4e2a-bbcc-b53ee42db64e)
+
+
+
+
+
 
